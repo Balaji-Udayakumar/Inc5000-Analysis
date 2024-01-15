@@ -1,1 +1,0 @@
-# Inc5000-Analysis
